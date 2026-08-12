@@ -1,7 +1,7 @@
 ## Hi there! ⛪️🐰
 ### About me
 - Amateur illustrator & graphic designer from Japan
-- 20 | Pronouns: they/she/he (they/them preferred but she/her & he/him is also fine)
+- 20 | Pronouns: they/she/he (they/them preferred)
 - My works: https://carumecuo.tumblr.com/
 ## Contact me via:
 - E-mail (atmark.apostle@gmail.com)
