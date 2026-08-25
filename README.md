@@ -3,6 +3,7 @@
 - Amateur illustrator & graphic designer from Japan
 - 20 | Pronouns: they/she/he (they/them preferred)
 - My works: https://carumecuo.tumblr.com/
+- もし日本語OKだったらそちらの方がありがたいです
 ## Contact me via:
 - E-mail (atmark.apostle@gmail.com)
 - Discord (Send a friend request to @carume_cuo_business)
